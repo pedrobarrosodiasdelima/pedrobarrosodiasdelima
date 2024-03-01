@@ -9,8 +9,9 @@ Bem-vindo ao meu espaço digital! Sou [Pedro Barroso Dias de Lima], um apaixonad
 ---
 
 ## Idiomas !
-**Inglês Fluênte
-**Espanhol Avançado 
+Inglês Fluênte
+
+Espanhol Avançado 
 
 ---
 
