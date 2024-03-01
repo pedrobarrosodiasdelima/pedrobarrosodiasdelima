@@ -8,6 +8,12 @@ Bem-vindo ao meu espaço digital! Sou [Pedro Barroso Dias de Lima], um apaixonad
 
 ---
 
+## Idiomas !
+Ingles Fluênte
+Espanhou Avançado 
+
+---
+
 ## 💼 Experiência e Projetos
 
 **Desenvolvedor Front-End | Empresa XPTO**  
