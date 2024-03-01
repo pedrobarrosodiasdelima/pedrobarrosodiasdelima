@@ -8,7 +8,7 @@ Bem-vindo ao meu espaço digital! Sou [Pedro Barroso Dias de Lima], um apaixonad
 
 ---
 
-## Idiomas !
+## Idiomas 
 Inglês Fluênte
 
 Espanhol Avançado 
